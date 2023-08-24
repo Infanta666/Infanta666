@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Infanta666
 - 👀 I’m interested 
   
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on crypto 
 - 📫 How to reach me ...
 
 <!---
